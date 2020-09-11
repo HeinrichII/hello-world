@@ -2,4 +2,5 @@
 My brand new github site!
 Texan, patriot, USAF veteran, lightning god.
 ...
-been awhile but getting back on this hors3!!!
+Hey! Don't listen to that MAIN guy, he's a bozo!
+
